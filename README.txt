@@ -1,2 +1,2 @@
-Adyant Shukla — Equity Research Portfolio
-Full-report website for Apple, Microsoft, and NVIDIA.
+Adyant Shukla — Complete Equity Research Portfolio
+Full report text preserved; sections reordered for website navigation only.
